@@ -1,4 +1,4 @@
-### Hello everyone !! 👋
+### Hello everyone !! 👋👋
 
 - ✨ Let me introduce myself my name is **Ferdio Nathaniel**, you can call me **Dio**
 - 🔭 I’m currently a Penultimate mathematics student at **University of Indonesia (S.Si)**
